@@ -10,3 +10,9 @@
 ===========================================================================
 
 ![image alt](https://github.com/jaypupu2006/CHANGE-INNOVATION-AWARD-2024/blob/main/resource/S__7241744.jpg?raw=true)
+
+===========================================================================
+
+📌Model Canvas📌
+
+![image alt](https://github.com/jaypupu2006/CHANGE-INNOVATION-AWARD-2024/blob/main/resource/Annotation%202025-05-18%20004109.jpg?raw=true)
