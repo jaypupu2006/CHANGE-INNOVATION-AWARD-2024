@@ -9,5 +9,4 @@
 
 ===========================================================================
 
-![image alt](([https://github.com/user-attachments/assets/a5819942-b815-4764-b85a-754b03015aba](https://github.com/jaypupu2006/CHANGE-INNOVATION-AWARD-2024/blob/main/resource/S__7241744.jpg?raw=true))
-)
+![image alt](https://github.com/jaypupu2006/CHANGE-INNOVATION-AWARD-2024/blob/main/resource/S__7241744.jpg?raw=true)
